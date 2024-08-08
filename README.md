@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LucasLin2023
-- 👀 I’m interested in theatre arts, and hiking. 
+- 👀 I’m interested in theatre arts, and analyzing human behaviour. 
 - 🌱 I’m currently learning how to be a good guy.
 - 💞️ I’m looking to collaborate on my existing project(s).
 - 📫 How to reach me lucas.lin.rotterdam@gmail.com
